@@ -26,4 +26,4 @@
 
 7. Sirve y disfruta.
 
-¡Buen provecho!
+¡Buen provecho, a disfrutar!
